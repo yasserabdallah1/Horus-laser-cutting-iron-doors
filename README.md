@@ -4,6 +4,6 @@ Horus Company is a leading manufacturer specializing in high-quality laser-cut i
 حورس: حيث يلتقي الحديد بالفن والإبداع. نصنع لكِ أكثر من مجرد سرير، نصنع لكِ تحفة فنية من الحديد. ابتكاراتنا لا حدود لها، من السراير الدورين الفخمة إلى البوابات والسلالم الفنية المصممة خصيصًا لك. دقة تصنيع الحديد الليزر تضمن لكِ جودة لا مثيل لها، ومتانة تدوم طويلاً.
 <a href="https://ironbeds.shop/">مصنع حورس للسراير الحديد</a>
 <a href="https://ironbeds.shop/%D8%A7%D8%A8%D9%88%D8%A7%D8%A8-%D8%AD%D8%AF%D9%8A%D8%AF-%D9%84%D9%8A%D8%B2%D8%B1/">مصنع حورس للابواب الحديد الليزر</a>
- <a href="https://vegfruexpo.com"> iron beds and steel doors</a>
+<a href="https://nefartiti.com/">yacht makers</a>
 
 
